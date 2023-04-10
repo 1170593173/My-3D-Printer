@@ -1,0 +1,1 @@
+hughes 300 scale 1/72 by ivango2 on Thingiverse: https://www.thingiverse.com/thing:5861338

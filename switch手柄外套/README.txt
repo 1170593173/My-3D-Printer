@@ -1,0 +1,1 @@
+Joycon Controller with Trigger buttons. Easy print by simonoriginal on Thingiverse: https://www.thingiverse.com/thing:5331778
