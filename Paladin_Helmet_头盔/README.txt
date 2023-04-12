@@ -1,0 +1,1 @@
+Paladin Helmet - wearable by AlalafBoot on Thingiverse: https://www.thingiverse.com/thing:5253969
